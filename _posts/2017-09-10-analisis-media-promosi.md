@@ -1,0 +1,12 @@
+---
+layout: post
+title: Analisis Media Promosi Game
+---
+
+Publikasi sangat penting bagi segala sesuatu, baik publikasi acara, kepaniataan, produk ataupun game. Publikasi sangat memengaruhi kepopuleran dari sebuah game, dan media publikasi game sekarangpun sudah sangat variatif seperti poster, trailer, event, website dan sebagainya. Tentu saja peran dari media publikasi atau promosi ini sangat vital, contohnya saja game Mobile Legends. 
+
+Mobile Legends adalah salah satu game yang mempunyai media promosi yang baik, seperti pembuatan trailer yang keren sehingga dapat menggambarkan game play dari game tersebut secara singkat dan menarik. Selain itu trailer juga terus diupdate secara berkala setiap kali ada pembaharuan. Belum lagi fitur dari game playnya juga bisa dijadikan salah satu media promosi, seperti membagikan hasil pertandingan di media sosial sehingga player bisa mendapatkan koin (Battle Point) lebih dari permainan. Hal ini memberikan keuntungan tersendiri bagi Mobile Legends sebagai media promosi sekaligus testimoni langsung dari player yang sudah bermain. Menarik bukan? Selain itu fitur live streaming yang ada pada game juga bisa dihubungkan dengan media sosial seperti Facebook, Youtube dll. Sehingga live streamingpun bisa ditonton oleh orang lain tanpa masuk ke game.
+
+Selain itu banyak akun official diberbagai media sosial juga menjadikan game ini semakin dekat dengan para penikmatnya sehingga kepuasan playerpun terpenuhi seperti pertanyaan-pertanyaan yang player tanyakan seputar game. Belum lagi pihak pengembang yang menerima Request Hero dari player seperti Hero Gatot Kaca dibuat atas masukan dari player dari Indonesia. Hal ini tentu saja dapat menambah antusiasme para pemain yang berasal dari Indonesia.
+
+Mobile Legends juga sering mengadakan kontes nasional ataupun event E-Sport. Yang terbaru adalah turnamen se-asia tenggara yang bertempatkan di Mall Taman Angrek, Jakarta. Yang mana jumlah penontonnya begitu antusias dan membludak di lokasi pertandingan. Jumlah penonton untuk link streaming pertandingan di Youtube sendiri memecahkan rekor baru untuk sebuah game, yaitu ditonton lebih 100 ribu jumlah penonton di youtube. Luar biasa bukan? Meskipun sebuah kontes tapi saya rasa ini dapat dijadikan sebagai media promosi yang sangat baik.
