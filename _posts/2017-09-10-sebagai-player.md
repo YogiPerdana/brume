@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Demo post
+title: Sebagai Player
 ---
 
 Mobile Legends merupakan game yang paling populer diantara game mobile lain saat ini. Game yang mengusung tema MOBA 5v5 ini mencapai 50 juta lebih di Play Store. Di dalam permainan para gamer ditantang dalam serangkaian level peningkatan serta dituntut untuk lihai meracik strategi dan peralatan (gear) agar Hero yang dimainkan dapat terus berkembang dengan baik. Dikembangkan oleh developer Moonton membuat kepopuleran Mobile Legends meledak begitu cepat.
